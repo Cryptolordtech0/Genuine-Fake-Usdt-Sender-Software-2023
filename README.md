@@ -17,7 +17,7 @@ The transaction remains in pending for days and You will have a hash id after th
 
 FOLLOW THE LINK BELOW TO DOWNLOAD THE SOFTWARE 
 
-https://wa.me/48573503435
+https://wa.me/48573560921
 
 This software and this video is for education purpose only!!
 
